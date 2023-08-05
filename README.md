@@ -6,7 +6,7 @@ Hello there! I'm Emir, a 22-year-old electrical electronics engineering student.
 
 If you're interested in collaborating on open-source projects or would like to connect for any other reason, please feel free to reach out. I'm excited to collaborate and learn together! 😊
 
-🐙          🐙          🐙     
+🐙           🐙           🐙     
 
 "Let's leave the pessimism to better days."🍻
  
